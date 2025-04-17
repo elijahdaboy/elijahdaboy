@@ -1,4 +1,4 @@
 - Hi everyone❤️ I'm Elijah Aaron!
 - I am a student who aspires to a be a programmer once I'm older.
-- I upload all my coding-related projects onto GitHub💻.
+- I upload all my coding-related projects onto GitHub💻
 - I use Windows for gaming but Linux is 🔛🔝
